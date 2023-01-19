@@ -4,7 +4,7 @@
 My name is Katherine Jacobson and I'm a junior at Iowa State University with a major in aerospace engineering 🚀 and a minor in computer science 💻. I'm from Minneapolis, Minnesota. I have one younger sister who goes to the Univeristy of Minnesota and a dog named Bob! 🐕 
 
 ## My Hobbies 🏂
-My hobbies include snowboarding, hiking, swimming, wakeboarding, fishing, and Scuba Diving. This year, I'm planning on getting scuba certified and someday i would like to get my pilot's liscense.
+My hobbies include snowboarding, hiking, swimming, wakeboarding, fishing, and Scuba Diving. This year, I'm planning on getting scuba certified and someday I would like to get my pilot's liscense.
 
 ## College Clubs 🏊‍♀️
 In college, I am apart of the Iowa State Swim Club. I have been apart of the club sicne feeshman year. We practice about 4 times a week at the on-campus pool and go to travel meets at other universities about 3 times a semester!
