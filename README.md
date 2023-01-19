@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+## About Me :octocat:
+My name is Katherine Jacobson 
+
 <!--
 **kaththekath/kaththekath** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
