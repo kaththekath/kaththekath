@@ -7,10 +7,10 @@ My name is Katherine Jacobson and I'm a junior at Iowa State University with a m
 My hobbies include snowboarding, hiking, swimming, wakeboarding, fishing, and Scuba Diving. This year, I'm planning on getting scuba certified and someday I would like to get my pilot's liscense.
 
 ## College Clubs 🏊‍♀️
-In college, I am apart of the Iowa State Swim Club. I have been apart of the club sicne feeshman year. We practice about 4 times a week at the on-campus pool and go to travel meets at other universities about 3 times a semester!
+In college, I am apart of the Iowa State Swim Club. I have been apart of the club since freshman year. We practice about 4 times a week at the on-campus pool and go to travel meets at other universities about 3 times a semester!
 
 ## Rocket Team! 🚀
-I am also apart of a rocket team called CyLaunch! For CyLaunch, we are building a rocket for the NASA student launch competition in the spring in Huntsville, Alabama. This semester, I am the project manager of the team and we are focusing on launching our full-scale rocket to prepare for the compeption in April! 
+I am also apart of a rocket team called CyLaunch! For CyLaunch, we are building a rocket for the NASA student launch competition in the spring in Huntsville, Alabama. This semester, I am the project manager of the team and we are focusing on launching our full-scale rocket to prepare for the competition in April! 
 
 ## Future Goals 🛰️
 In the future, I'm hoping to work in the aerospace field either on space or aircraft. This summer, I am interning for Garmin in their aviation division! ✈️
